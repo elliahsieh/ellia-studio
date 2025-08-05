@@ -1,1 +1,0 @@
-# ellia-studio
